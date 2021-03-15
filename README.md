@@ -1,0 +1,1 @@
+## HI, my name is Mathilda and I´m currently studying Frontend Developer at Medieinstitutet! 🙋🏼 🖥
